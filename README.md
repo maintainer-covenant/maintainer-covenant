@@ -1,1 +1,1 @@
-# maintainer-covenant
+Stay tuned. Coming soon!
